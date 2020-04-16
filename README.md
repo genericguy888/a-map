@@ -1,3 +1,3 @@
 # a-map
-some map I made. probably the worst but I'd
+some map I made. probably the worst but idc
 goodbye
